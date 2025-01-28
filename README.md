@@ -12,3 +12,4 @@ Digital creation:
 Ability to create digital content like documents, presentations, videos, and images using relevant software. 
 Cybersecurity awareness:
 Understanding online threats like phishing scams, malware, and privacy concerns, and taking appropriate precautions to protect personal information. 
+tdhchvhgjhdjvjvjvjvjvgchckfofhfhfgfuhgg
